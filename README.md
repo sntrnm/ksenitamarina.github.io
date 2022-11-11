@@ -1,2 +1,2 @@
-# ksenitamarina.github.io
+# sntrnm.github.io
 Assassin`s Creed хронологія
